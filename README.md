@@ -1,0 +1,2 @@
+# MacintoshHD-Users-takaakimochizukiimac-
+Applications
